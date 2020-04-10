@@ -32,6 +32,7 @@ carolinwend </br>
 chazschmidt </br>
 chrisblec </br>
 daveytea </br>
+defi_dad </br>
 denizomer </br>
 ethereumJoseph </br>
 evan_van_ness </br>
