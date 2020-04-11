@@ -33,6 +33,7 @@ chazschmidt </br>
 chrisblec </br>
 daveytea </br>
 defi_dad </br>
+defiprime </br>
 denizomer </br>
 ethereumJoseph </br>
 evan_van_ness </br>
